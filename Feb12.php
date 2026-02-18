@@ -40,3 +40,5 @@ door，floor，poor（oor,oar,our）soar,course
 
 
 1+2+3+....+98+99+100   101,101,..,...nn==50 101*50=5050
+
+OYPX
