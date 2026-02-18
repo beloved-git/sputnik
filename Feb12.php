@@ -2,7 +2,7 @@
 民航
 邮轮 经济法 宪法 项目申报 聋哑英语
 
-槟郎 产业 面试/补课 潜艇兵 西南财经大学 
+槟郎 产业 
 
 vol ex+vol=evolve volume体积 revolve revolution把社会卷起来->革命 convoluted复杂的，一团乱麻
 rule rulerl ruling class 统治阶级
